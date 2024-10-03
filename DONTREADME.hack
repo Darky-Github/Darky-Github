@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Darky-Github
+- 👀 I’m interested in hacking
+- 🌱 I’m currently learning 
+- 😄 Pronouns: hacker/hecker
